@@ -1,5 +1,4 @@
-# The-Sovereign-Individual
-# 主权个人
+# The-Sovereign-Individual 主权个人
 by James Dale Davidson & Lord William Rees-Mogg Simon & Schuster 1997
 
 
